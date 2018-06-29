@@ -25,3 +25,9 @@ Concerning the modern era:
     Alan Weisman - The World Without Us
 
 ---
+
+    He that boasts of his own knowledge proclaims his ignorance.
+    
+    Author Unknown
+    
+---
