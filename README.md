@@ -31,3 +31,19 @@ Concerning the modern era:
     Author Unknown
     
 ---
+
+    Writing means sharing. It's part of the human condition to want to share things -- thoughts, ideas, opinions.
+    
+    Paulo Coehlo
+    
+---
+
+    The purpose of education is to replace an empty mind with an open one.
+    
+    Malcolm Forbes
+    
+---
+
+    The day we stop exploring is the day we commit ourselves to live in a stagnant world, devoid of curiosity, empty of dreams.
+    
+    Neil deGrasse Tyson
