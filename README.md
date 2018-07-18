@@ -70,3 +70,7 @@ We pay tribute to the reporter who is willing to stand when others will run, who
 
 ---
 
+It is shocking to find how many people do not believe they can learn, and how many more believe learning to be difficult. Muad'Dib knew that every expereience carries its lesson.
+
+    Princess Irulan
+    Written in Dune by Frank Herbert
