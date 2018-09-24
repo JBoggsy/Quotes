@@ -88,3 +88,9 @@ Only I will remain.
 
     Litany Against Fear
     Dune by Frank Herbert
+
+---
+
+Try to understand men, if you understand each other, you will be kind to each other. Knowing a man well never leads to hate and nearly always leads to love. 
+
+    John Steinbeck
