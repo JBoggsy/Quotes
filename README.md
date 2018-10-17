@@ -94,3 +94,9 @@ Only I will remain.
 Try to understand men, if you understand each other, you will be kind to each other. Knowing a man well never leads to hate and nearly always leads to love. 
 
     John Steinbeck
+
+---
+
+One must learn by doing the thing; for though you think you know it, you have no certainty, until you try.
+
+    Sophocles
