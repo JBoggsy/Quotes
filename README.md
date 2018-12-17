@@ -100,3 +100,9 @@ Try to understand men, if you understand each other, you will be kind to each ot
 One must learn by doing the thing; for though you think you know it, you have no certainty, until you try.
 
     Sophocles
+
+---
+
+Friendship is unnecessary, like philosophy, like art... It has no survival value; rather it is one of those things that give value to survival. 
+
+    C. S. Lewis
