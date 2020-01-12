@@ -169,3 +169,9 @@ May rise and build anew
 Stand up and build anew.  
 
     Hymn of Breaking Strain - Rudyard Kipling
+
+---
+
+Everyone starts with drawing a single line. Don't make fun of them. 
+
+    Kihara-san
