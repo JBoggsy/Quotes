@@ -175,3 +175,9 @@ Stand up and build anew.
 Everyone starts with drawing a single line. Don't make fun of them. 
 
     Kihara-san
+
+---
+
+The thing about confidence is that it's not without its preparation. We draw confidently because we've already done everything we can to assure success - this doesn't mean success is guaranteed, but that there is simply nothing else to be done, and therefore no use worrying or hesitating.
+
+    Drawabox
