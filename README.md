@@ -181,3 +181,9 @@ Concerning the modern era:
 > The thing about confidence is that it's not without its preparation. We draw confidently because we've already done everything we can to assure success - this doesn't mean success is guaranteed, but that there is simply nothing else to be done, and therefore no use worrying or hesitating.
 
     Drawabox
+    
+---
+
+> “You were sick, but now you're well again, and there's work to do.” 
+
+    Kurt Vonnegut, Timequake
