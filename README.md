@@ -193,3 +193,9 @@ Concerning the modern era:
 > "If you're going to feel regret, then you have to accept it all and live on. That's how adults take responsibility, right?"
     
     Zaratras, Seven Deadly Sins
+    
+---
+
+> "If you don't act like an imposter, who else will?"
+
+    John Laird
