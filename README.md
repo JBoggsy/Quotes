@@ -199,3 +199,11 @@ Concerning the modern era:
 > "If you don't act like an imposter, who else will?"
 
     John Laird
+
+---
+
+> "It's more important to be right tomorrow than win an argument today."
+    
+    John Laird
+
+---
