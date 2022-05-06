@@ -217,3 +217,9 @@ Concerning the modern era:
 > "The man who realizes his ignorance has taken the first step toward knowledge."
 
     Max Heindel
+
+---
+
+> "All correct reasoning is a grand system of tautologies, but only God can make direct use of that fact."
+
+    Herbert A. Simon
