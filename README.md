@@ -223,3 +223,9 @@ Concerning the modern era:
 > "All correct reasoning is a grand system of tautologies, but only God can make direct use of that fact."
 
     Herbert A. Simon
+
+---
+
+> "Anxiety is a lie and fear is a curse."
+
+    Menzel Washington
