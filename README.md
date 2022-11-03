@@ -229,3 +229,9 @@ Concerning the modern era:
 > "Anxiety is a lie and fear is a curse."
 
     Menzel Washington
+
+---
+
+> "For thought is right reasoning moving from things certain to the investigation of things uncertain."
+
+    Augustine of Hippo, On the Immortality of the Soul
