@@ -235,3 +235,9 @@ Concerning the modern era:
 > "For thought is right reasoning moving from things certain to the investigation of things uncertain."
 
     Augustine of Hippo, On the Immortality of the Soul
+
+---
+
+> "To me there is not only right or wrong but many shades in between... The real tragedies in life are not in choices between right and wrong. Only the most callous of persons choose what they know to be wrong. Real tragedy comes [illegible] in a dilemma of evaluating what is right... Real dilemmas are difficulties of the soul, provoking agonies..."
+
+    Henry Kissinger
