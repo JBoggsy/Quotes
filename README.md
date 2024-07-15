@@ -148,7 +148,7 @@ Concerning the modern era:
 > The mighty works we planned.  
 
 > We only of Creation  
-> (0h, luckier bridge and rail)  
+> (Oh, luckier bridge and rail)  
 > Abide the twin damnation—   
 > To fail and know we fail.  
 > Yet we - by which sole token  
