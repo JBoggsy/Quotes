@@ -241,3 +241,8 @@ Concerning the modern era:
 > "To me there is not only right or wrong but many shades in between... The real tragedies in life are not in choices between right and wrong. Only the most callous of persons choose what they know to be wrong. Real tragedy comes [illegible] in a dilemma of evaluating what is right... Real dilemmas are difficulties of the soul, provoking agonies..."
 
     Henry Kissinger
+---
+
+> "It is the mark of an educated mind to be able to entertain a thought without accepting it.
+
+    Aristotle
