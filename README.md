@@ -246,3 +246,27 @@ Concerning the modern era:
 > "It is the mark of an educated mind to be able to entertain a thought without accepting it.
 
     Aristotle
+
+---
+
+> Sit down. Inhale. Exhale.
+> The gun will wait. The lake will wait.
+> The tall gall in the small seductive vial
+> will wait will wait:
+> will wait a week: will wait through April.
+> You do not have to die this certain day.
+> Death will abide, will pamper your postponement.
+> I assure you death will wait. Death has
+> a lot of time. Death can
+> attend to you tomorrow. Or next week. Death is
+> just down the street; is most obliging neighbor;
+> can meet you any moment.
+> 
+> You need not die today.
+> Stay here—through pout or pain or peskyness.
+> Stay here. See what the news is going to be tomorrow.
+> 
+> Graves grow no green that you can use.
+> Remember, green's your color. You are Spring.
+
+    Gwendolyn Brooks, To the Young Who Want to Die
