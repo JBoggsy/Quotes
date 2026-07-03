@@ -270,3 +270,9 @@ Concerning the modern era:
 > Remember, green's your color. You are Spring.
 
     Gwendolyn Brooks, To the Young Who Want to Die
+
+---
+
+> Fate is the decisions we make, and their consequences. It has no need for your belief, Monsieur le Djinn. It believes in you
+
+    Locke, Lamplighters League
